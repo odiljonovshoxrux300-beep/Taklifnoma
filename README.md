@@ -1,0 +1,2 @@
+# Taklifnoma
+Shoxrux va Muhlisaxon
